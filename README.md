@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+⚡ Fun fact: i am yet learning and yet i am not understanding :) ;) 🤔
 <!--
 **Amit3200/amit3200** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
